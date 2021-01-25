@@ -1,3 +1,3 @@
-# Exciting + Cat
+# Exciting + Oct
 
-익사이팅 캣
+익사이팅 옥토퍼스
